@@ -35,4 +35,5 @@ V&V return to their Montessoris in central square.  At this point, we will need:
 - on weekdays of M,T,Th,F
 - 3pm pickup for Vera and 330 pickup for Virgil
 - care until finish at 6 on Hurley St
+
 Logistics TBD.
