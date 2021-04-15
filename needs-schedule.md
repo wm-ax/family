@@ -4,7 +4,7 @@ Here's an outline of our childcare needs starting this May (2021).
 
 ## May through early July
 
-Vera's Montessori ends June 3; Virgil's ends June 18.  Until Pine Village starts on 5 July, there will be some days where both Julia and I work and so we could use all-day (6-8 hours) care for one or two kids.  These days are:
+Vera's Montessori ends June 3; Virgil's ends June 18.  Until Pine Village starts on 5 July, there will be some days where both Julia and Max work and so we really need a longish (6-8 hours) care session for one or two kids.  These days are:
 
   * 7,8,10,28,29 June
   * 1 July
@@ -14,9 +14,9 @@ There are other days besides these when we could use 6-8 hours help:
   * 7,8,9,11 June
   * 2 July
 
-We can be flexible about duration and start times of these sessions, but they should include the range 10am-6pm.
+We can be flexible about duration and start times of these sessions, but in general they may need to include the range 10am-4pm.
 
-## Early July through late August
+## Early July through 25 August
 
 Except for occasional holidays, from July 5 through August 25 we are looking for:
   * on weekdays M,T,Th,F
@@ -27,7 +27,7 @@ Except for occasional holidays, from July 5 through August 25 we are looking for
 
 ## Late August
 
-Pine Village closes the last week of August, and we could use some all-day care then (precise dates TBD).
+Pine Village closes after 25 August, and we could use some all-day care then (precise dates TBD).
 
 ## September onward
 
