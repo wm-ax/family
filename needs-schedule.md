@@ -1,6 +1,6 @@
 # childcare schedule 
 
-Here's an outline of our childcare needs starting this May (2021).
+Here's an outline of our childcare needs starting this May (2021).  Note that we don't necessarily expect these to be filled by any one person, but we do hope for a reasonably simple solution:).
 
 ## May through early July
 
